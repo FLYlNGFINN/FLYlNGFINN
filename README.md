@@ -12,6 +12,6 @@ the [schumi](https://github.com/rvsseII) to my mika lele
 
 <p align=center
 
-<sup>*inspired by old readme[@willamettee](https://github.com/willamettee)*<sup>
+<sup>*inspired by [@willamettee](https://github.com/willamettee)‘s old readme*<sup>
 
 ![i also did made this](https://file.garden/amk41tJBgXdq2wiW/Tak%20berjudul5_20260906175904.png)
