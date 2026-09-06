@@ -4,6 +4,8 @@
 
 the [schumi](https://github.com/rvsseII) to my mika lele
 
+![](https://komarev.com/ghpvc/?username=FLYlNGFINN&color=lightgrey&style=plastic&label=seenthisangel?&base=884)
+
 ![i also made this](https://file.garden/amk41tJBgXdq2wiW/Tak%20berjudul4_20260903160151.png)
 
 
@@ -11,5 +13,7 @@ the [schumi](https://github.com/rvsseII) to my mika lele
 
 
 <sup>*inspired by [@willamettee](https://github.com/willamettee)‘s old readme*<sup>
+
+[新book](https://aquamarine.atabook.org) ⠀♱ ⠀[strawp](https://jenskimi.straw.page) ⠀♱ ⠀[guns](https://guns.lol/fieryones)
 
 ![i also did made this](https://file.garden/amk41tJBgXdq2wiW/Tak%20berjudul5_20260906175904.png)
