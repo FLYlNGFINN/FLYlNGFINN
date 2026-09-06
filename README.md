@@ -4,7 +4,7 @@
 
 the [schumi](https://github.com/rvsseII) to my mika lele
 
-![](https://komarev.com/ghpvc/?username=FLYlNGFINN&color=lightgrey&style=plastic&label=seenthisangel?&base=884)
+![](https://komarev.com/ghpvc/?username=FLYlNGFINN&color=FE019A&style=plastic&label=seenthisangel?&base=878)
 
 ![i also made this](https://file.garden/amk41tJBgXdq2wiW/Tak%20berjudul4_20260903160151.png)
 
