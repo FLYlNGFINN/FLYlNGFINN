@@ -14,6 +14,6 @@ the [schumi](https://github.com/rvsseII) to my mika lele
 
 <sup>*inspired by [@willamettee](https://github.com/willamettee)‘s old readme*<sup>
 
-[新book](https://iceicebaby.atabook.org) ⠀ ‎ ‎  ♱  ‎ ‎  ⠀[strawp](https://jenskimi.straw.page)  ‎ ‎  ⠀♱  ‎ ‎  ⠀[guns](https://guns.lol/fieryones)
+[新book](https://iceicebaby.atabook.org) ⠀ ‎ ‎  ♱  ‎ ‎  ⠀[strawp](https://jenskimi.straw.page)  ‎ ‎  ⠀♱  ‎ ‎  ⠀[guns](https://guns.lol/kittykonen)
 
 ![i also did made this](https://file.garden/amk41tJBgXdq2wiW/Tak%20berjudul5_20260906175904.png)
